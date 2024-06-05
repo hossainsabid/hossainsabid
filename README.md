@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shakchunni&label=Profile%20views&color=7a0eb4&style=flat" alt="shakchunni" /> </p>
 
-- 📫 How to reach me **shabid.hossain@outlook.com**
+- 📫 How to reach me **contact@sabidhossain.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
